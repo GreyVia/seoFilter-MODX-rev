@@ -1,0 +1,1 @@
+# seoFilter-MODX-rev
